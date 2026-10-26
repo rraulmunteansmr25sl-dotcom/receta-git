@@ -12,3 +12,4 @@
 3. Hornear 40 minutos. 
 - 50g de mantequilla 
 - 50g de mantequilla 
+- 1 pizca de sal 
